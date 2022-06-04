@@ -1,1 +1,1 @@
-# rsschool-cv
+https://altynaiturusbek.github.io
